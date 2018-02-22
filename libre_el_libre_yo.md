@@ -33,7 +33,7 @@ ella lo mira con sus ojos tristes, pero con voz firme, resuelta le
 dice casi gritando como para que sus palabras no se pierdan entre el
 ruido metálico y aterrador de las armas
 
-Jota, pase lo que pase recuerda – prefiero un hijo muerto que un hijo traidor -.
+Jota, pase lo que pase recuerda — prefiero un hijo muerto que un hijo traidor —.
 
 Sus palabras quedaron grabadas en nuestras mentes, por años las
 recordamos con respeto y reconocimiento al valor que nos dio.
@@ -104,12 +104,12 @@ girar y verlo ya no fue lo mismo, es un pobre huevón, un picante de
 mierda, trató de escudarse en la mujer que estaba a su lado, levanto
 la vista y me miro con ojillos de rata asustada y me dijo
 
-- Todavía te acordai -
+— Todavía te acordai —
 
 Mis dedos se aflojaron, me cuenta- el peso de años que tenía en mi
 alma se esfumó, era tan poca cosa, y contestó:
 
-- Chiii si me dolió po -
+— Chiii si me dolió po —
 
 Atónita a lo que había escuchado y en silencio nos miramos largo rato
 y las gotitas de agua de sus ojos negros y limpios bajaban ahora por
