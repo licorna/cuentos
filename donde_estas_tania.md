@@ -32,8 +32,8 @@ están vacías.
 Con miradas cómplices, se sonríen, algo tienen que contar, se obligan
 a informarme.
 
-- Cuéntale tu, se dicen entre los cuatros, siento que todos quieren
-  contar... sonrisas, casi carcajadas - son cómplices de algo que los hace feliz.
+— Cuéntale tu, se dicen entre los cuatros, siento que todos quieren
+  contar... sonrisas, casi carcajadas — son cómplices de algo que los hace feliz.
 
 Me acomodo en el sillón y acepto complacida las caricias de mis hijas.
 
@@ -54,9 +54,9 @@ Con cierto nerviosismo que no logra disimulara  me muestra su mano
 izquierda indicando que en su dedo anular lleva una argolla de metal
 blanco, y dice:
 
- - Mamá me he comprometido en matrimonio
+— Mamá me he comprometido en matrimonio.
 
-Risas y complicidad llenan el ambiente
+Risas y complicidad llenan el ambiente.
 
 Siento una extraña emoción, solo lo miro tiene unos ojos grandes y
 mirada feliz, es alto lo observo, su pelo largo, una incipiente barba

@@ -12,19 +12,19 @@ Como todas las mañanas el profe abre el libro de clases y comienza a
 pasar lista de asistencia llamando a los jóvenes con voz gastada y
 rutinaria.
 
-- Andrade: presente.
-- Baeza: presente.
-- Castillo: presente.
+— Andrade: presente.
+— Baeza: presente.
+— Castillo: presente.
 
 Los nombres que por años se repiten saltan de banco en banco.
 
-- Ugas: presente.
-- Varas: silencio.
+— Ugas: presente.
+— Varas: silencio.
 
 El profesor repite...
 
-- Varas - silencio.
-- Varas? - nadie responde.
+— Varas — silencio.
+— Varas? — nadie responde.
 
 Guacolda Varas: Nadie contesta, solo los de mirada arrogante levantan la cabeza.
 
