@@ -26,9 +26,13 @@ avanzan rápidas en una entretenida y cotidiana conversación.
 El joven pregunta:
 
 — ¿Es usted Enfermera? —
+
 — Si… — Respondo con curiosidad.
+
 — ¿Del Hospital Naval? —
+
 — Si… — Respondo.
+
 — ¿Nos deja en la esquina por favor? —
 
 Toca mi hombro, casi con fuerza, puedo sentir sus dedos haciendo
@@ -38,6 +42,7 @@ presión sin dañar, como asegurándose de transmitir sentimientos
 torturado, me ingresaron al hospital naval de Valparaíso con la vista
 vendada y cada día usted entro en mi habitación y me pidió un contacto
 para avisar que yo estaba ahí —.
+
 — No podía creerle — Me dice como justificándose.
 
 Mis manos hacen presión contra el volante no puedo moverme, algo como
